@@ -1,0 +1,1 @@
+# SCC0634-Artificial-Intelligence-Applications
